@@ -1,1 +1,0 @@
-# faus-edu-support
